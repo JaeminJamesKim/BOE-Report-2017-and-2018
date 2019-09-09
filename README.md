@@ -1,0 +1,6 @@
+# BOE-Report-2017-and-2018
+ASSOCIATION OF AMERICAN RAILROADS BUREAU OF EXPLOSIVES
+
+Please search for "ASSOCIATION OF AMERICAN RAILROADS BUREAU OF EXPLOSIVES 2017" on Google :)
+BOE Report for 2018 may not have been made public yet by AAR.
+
